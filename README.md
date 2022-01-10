@@ -1,0 +1,1 @@
+# blog.jdpaltingca.me
